@@ -1,0 +1,23 @@
+---
+title: "Det går bra att peka"
+date: "2018-08-01"
+image: "../images/det-gar-bra-att-peka.jpg"
+---
+
+Man kan tro att maten på bilden är riktig, men sanningen är att den är
+helt oäkta. I själva verket är det avbildningar helt i wax för att se
+ut som riktig mat. Så varför görs det modeller på mat? Många, om inte
+runt 50 procent av restauranger som vi stött på i Japan använder sig
+av vaxmodeller för att visa vad de har för utbud istället för en
+vanlig meny. Restauranger i Japan började använda sig av vaxmodeller
+runt 1920-talet innan vanliga menyer fanns. Idag är det ett enligt mig
+ett genialt koncept då restauranger visar exakt vad de serverar samt
+en del ser otroligt verkliga ut vilket retar aptiten. Dessutom är det
+perfekt i ett land som Japan där många turiser inte kan japanska och
+japaner inte kan engelska då det räcker att enbart peka på vad man
+vill äta i skyltfönstret för personalen. Det är en enorm industri och
+många restauranger beställler skräddarsydda vaxmodeller så att de ser
+exakt som just deras rätter och inte som restaurangen bredvid. Fick
+reda på att en vaxmodell av en "portion" kan kosta mellan 10 000 - 50
+000kr! Om du har varit i Japan så tror jag att du kan hålla med om
+vissa modeller ser sjukt realistiska!
